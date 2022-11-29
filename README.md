@@ -1,0 +1,2 @@
+# omoshiroki
+for omoshiroki site
